@@ -1,5 +1,5 @@
 
-## Hello ! I think I've got the attention of that ship over there .., I can lower the platform to get us down there . Hold tight until I can bring this platform back up .
+### Hello ! I think I've got the attention of that ship over there .., I can lower the platform to get us down there . Hold tight until I can bring this platform back up .
 
 —
 
@@ -13,5 +13,5 @@ my main has more info like general dnis and stuff , go check it out
 
 —
 
-## Get on the platform !
+### Get on the platform !
 

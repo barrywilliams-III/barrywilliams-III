@@ -17,5 +17,6 @@ my main has more info like general dnis and stuff , go check it out
 
 ### Get on the platform !
 
-<img width="250" height="148" alt="1000174512" src="https://github.com/user-attachments/assets/30e41a8e-7eec-48fd-997d-390fbecb0ec7" />
+
+
 

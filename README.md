@@ -1,5 +1,7 @@
 
-# Hello ! I think I've got the attention of that ship over there .., I can lower the platform to get us down there . Hold tight until I can bring this platform back up .
+## Hello ! I think I've got the attention of that ship over there .., I can lower the platform to get us down there . Hold tight until I can bring this platform back up .
+
+—
 
 im prettyyy new to the gnb fandom .,, im kind of scared of it so i may be shy to interact but ill still be open to discussion kinda
 
@@ -9,5 +11,7 @@ my main interests involving history are 20th century wars so im a bit less knowl
 
 my main has more info like general dnis and stuff , go check it out
 
-# Get on the platform !
+—
+
+## Get on the platform !
 

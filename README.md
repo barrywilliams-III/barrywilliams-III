@@ -1,6 +1,8 @@
 
 ### Hello ! I think I've got the attention of that ship over there .., I can lower the platform to get us down there . Hold tight until I can bring this platform back up .
 
+<img width="320" height="240" alt="1000174518" src="https://github.com/user-attachments/assets/f1b6d5fb-3271-4fa1-ba3a-d8a7cdf14fb0" />
+
 —
 
 im prettyyy new to the gnb fandom .,, im kind of scared of it so i may be shy to interact but ill still be open to discussion kinda
@@ -14,4 +16,6 @@ my main has more info like general dnis and stuff , go check it out
 —
 
 ### Get on the platform !
+
+<img width="250" height="148" alt="1000174512" src="https://github.com/user-attachments/assets/30e41a8e-7eec-48fd-997d-390fbecb0ec7" />
 
